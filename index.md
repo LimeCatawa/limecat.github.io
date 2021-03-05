@@ -5,3 +5,7 @@
 **欢迎来玩！**
 
 不过不知道为什么这玩意好像不工作的样子......
+
+Twitter [GO>>](twitter.com/limecatawa)
+
+Telegram频道 [GO>>](t.me/limecatchannel)
